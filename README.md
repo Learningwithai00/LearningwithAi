@@ -19,5 +19,5 @@ Subscribe to our channel for free programming tutorials and stay updated with ou
 
 🌐 **Connect with Us:**  
 - YouTube: [Learning with AI](https://youtube.com/@learningwithai-k)
-- email: [Learning with AI] (https://www.learningwithai00@gmail.com)
+- email: [Learning with AI](https://www.learningwithai00@gmail.com)
 
